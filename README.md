@@ -11,3 +11,5 @@ To join the discussion, visit one of the many platforms where this Bill of Right
 Additional resources:  
 
 We have not included reading resources here but invite you to add the ones most meaningful to you in the public, crowd-sourced version of the Bill of Rights and Principles for Learning in the Digital Age  Collective contribution is the principle we espouse in this document.  We look forward to your participation.
+
+How about a "Right of access for the disabled." As we build our on-line and electronic classrooms, let us ensure that we do not include classromms with the electronic equivalent of 'stair access' for persons experiencing any of the range of disabilities.
